@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SureNotBober
+- 👀 I’m interested in Tech
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I Will build an gaming PC :)
